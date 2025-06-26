@@ -1,5 +1,4 @@
-| <div id="header" align="center">
-![](https://komarev.com/ghpvc/?username=moonloverr&style=plastic&color=blue&label=❤&base=20490)
+
 
 [MEGZ](https://github.com/5uguru) WAS HERE YAHOOO 😎😎
 ## how ut feltlike asking 4 ur gh 
