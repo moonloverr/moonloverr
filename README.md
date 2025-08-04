@@ -1,7 +1,13 @@
+<div id="header" align="center">
 
-[MEGZ](https://github.com/5uguru) WAS HERE YAHOOO 😎😎
-## how ut feltlike asking 4 ur gh 
-<img src=https://i.postimg.cc/gj9xzTG2/Untitled17-20250503215238.png width="70" height="80"> ⠀⠀⠀BEWARE of niks greed
+ac⠀:⠀@thisoneeisliu on tt
 
-<img src=https://i.postimg.cc/qq8zzx7X/Untitled18-20250503220237.png width="300" height="250">
-Megz out!
+<div id="header" align="center">
+
+<img src=https://i.postimg.cc/SKZnSFR6/Untitled62-20250729230209.png width="290" height="220">
+
+<div id="header" align="left">
+  
+BEWARE of niks greed⠀[Megz](https://github.com/5uguru) out!
+
+<img src=https://i.postimg.cc/qq8zzx7X/Untitled18-20250503220237.png width="240" height="155">
