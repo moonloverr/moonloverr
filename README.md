@@ -1,11 +1,19 @@
+<div align="center">
 
-***W F in it。。。***
+  ***W F in it。。。***
 
-![helo](https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg)
-<img src="[URL_do_obrazu](https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg)" height="150"
-<img src="[URL_do_obrazu](https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg)" width="300"
-⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ***。。。Like whaaaaat👀***
+  <br>
 
+  <img src="https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg" width="300" />
 
+  <br><br>
 
-*[matching rentri wit kadita heart](https://rentry.co/Lazuryth)*
+  ***。。。Like whaaaaat👀***
+
+  <br><br>
+
+  <a href="https://rentry.co/Lazuryth">
+    <i>matching rentri wit kadita heart</i>
+  </a>
+
+</div>
