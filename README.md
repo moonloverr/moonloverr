@@ -15,7 +15,7 @@
   <br><br>
 
   <a href="https://rentry.co/Lazuryth">
-    <i>matching rentri wit kadita heart</i>
+    <i>**matching rentri wit kadita heart**</i>
   </a>
 
 </div>
