@@ -15,7 +15,11 @@
   <br><br>
 
   <a href="https://rentry.co/Lazuryth">
-    <i>matching rentri wit kadita heart</i>
+    <i>matching rentry with kadita ♡</i>
+
+
+  <a href="https://rentry.co/nikkslovemail">
+    <i>lovemail</i>
   </a>
 
 </div>
