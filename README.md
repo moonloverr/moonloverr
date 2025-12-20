@@ -1,25 +1,11 @@
 <div align="center">
 
- ***DZIKUS***
+**DZIKUS**  
+**W F in it。。。**
 
- ***W F in it。。。***
+<img src="https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg" width="300"/>
 
-  <br>
+*。。。Like whaaaaat👀*
 
-  <img src="https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg" width="300" />
-
-  <br><br>
-
-  ***。。。Like whaaaaat👀***
-
-  <br><br>
-
-  <a href="https://rentry.co/Lazuryth">
-    <i>matching rentry with kadita ♡</i>
-
-
-  <a href="https://rentry.co/nikkslovemail">
-    <i>lovemail</i>
-  </a>
-
+[MAIN RENTRY](https://rentry.org/chol-sang) ⠀⠀⠀⠀[ABOUT ME](https://rentry.org/cirrusbae) ⠀⠀⠀⠀[ATABOOK](https://moonloverr.atabook.org/) ⠀⠀⠀⠀[UNFINISHED LOVEMAIL](https://rentry.co/nikkslovemail)
 </div>
