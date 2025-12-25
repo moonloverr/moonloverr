@@ -1,11 +1,11 @@
 <div align="center">
 
 **DZIKUS**  
-**W F in it。。。**
+**[Pretty boy](https://github.com/blacksorroww)。。。**
 
 <img src="https://i.postimg.cc/7YhzJBvw/IMG-1214.jpg" width="300"/>
 
-*。。。Like whaaaaat👀*
+*。。。Wont you come to my room tonight?*
 
 [MAIN RENTRY](https://rentry.org/chol-sang) ⠀⠀⠀⠀[ABOUT ME](https://rentry.org/cirrusbae) ⠀⠀⠀⠀[ATABOOK](https://moonloverr.atabook.org/) ⠀⠀⠀⠀[UNFINISHED LOVEMAIL](https://rentry.co/nikkslovemail)
 
