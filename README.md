@@ -1,6 +1,6 @@
 <div align="center">
   
-**@moonloverr x [@blacksorroww](https://github.com/blacksorroww) = [@KAlSAGI](https://github.com/KAlSAGI)**
+**@moonloverr x [@blacksorroww](https://github.com/blacksorroww)
 
 <img src="https://i.postimg.cc/t41JJDNS/Cirrus-and-Skylar.jpg" width="300"/>
 
