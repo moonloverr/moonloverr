@@ -7,5 +7,9 @@
 
 [MAIN RENTRY](https://rentry.org/chol-sang) ⠀⠀⠀[ABOUT ME](https://rentry.org/cirrusbae) ⠀⠀⠀[ATABOOK](https://moonloverr.atabook.org/) ⠀⠀⠀[UNFINISHED LOVEMAIL](https://rentry.co/nikkslovemail)
 
-**Matching rentries in links**
+**Matching rentries in links ||**
+THE HELLLLL IM INNOCENT GET OUT OF MY HEADDDDDDDDDDD slash innocent* Im cute and do nothign IM NOT A MURDERER
+
+<img src="https://i.postimg.cc/Qd8r7Xt1/Zrzut-ekranu-2026-05-13-204337.png" width="650"/>
 </div>
+
