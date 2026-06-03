@@ -9,9 +9,10 @@
 
 [MAIN RENTRY](https://rentry.org/chol-sang) ⠀⠀⠀[ABOUT ME](https://rentry.org/cirrusbae) ⠀⠀⠀[ATABOOK](https://moonloverr.atabook.org/) ⠀⠀⠀[UNFINISHED LOVEMAIL](https://rentry.co/nikkslovemail)
 
-**Matching rentries in links ||**
-Im not the kira kuni. You are. xoxo
 
-<img src="https://i.postimg.cc/503sLPtK/Zrzut-ekranu-2026-05-20-174600.png" width="650"/>
+Kuni chan updating the case we all wait for new info
+
+**Matching rentries in links**
+
 </div>
 
