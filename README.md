@@ -8,7 +8,9 @@
 
 The most schizo friend badge goes to <[kuni](https://github.com/constrz)3 support him in da murder case 👀
 
-[<img src="https://files.catbox.moe/7nfown.png" width="200"/>](https://rentry.org/chol-sang)  ⠀⠀⠀[<img src="https://files.catbox.moe/hzz6qw.png" width="200"/>](https://moonloverr.atabook.org/) ⠀⠀⠀
+[<img src="https://files.catbox.moe/7nfown.png" width="200"/>](https://rentry.org/chol-sang)  ⠀⠀⠀[<img src="https://files.catbox.moe/hzz6qw.png" width="200"/>](https://moonloverr.atabook.org/) ⠀⠀
+
+⠀[check this too ok](https://iglesiasbuns.straw.page)
 
 
 <img src="https://files.catbox.moe/g9kvni.jpeg" width="300"/>
