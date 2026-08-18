@@ -1,13 +1,10 @@
 <div align="center">
 
-The most schizo friend badge goes to <[kuni](https://github.com/constrz)3 support him in da murder case 👀
+Readme made by [soapie senpai~](https://github.com/shokosclinic)
 
-[<img src="https://files.catbox.moe/7nfown.png" width="200"/>](https://rentry.org/chol-sang)  ⠀⠀⠀[<img src="https://files.catbox.moe/hzz6qw.png" width="200"/>](https://moonloverr.atabook.org/) ⠀⠀
+[<img src="https://files.catbox.moe/5jetzo.webp" width="200"/>](https://rentry.org/chol-sang)      <img src="https://files.catbox.moe/segxby.webp" width="100"/>      [<img src="https://files.catbox.moe/ypdseh.webp" width="230"/>](https://moonloverr.atabook.org/) ⠀⠀
 
-⠀[check this too ok](https://iglesiasbuns.straw.page)
-
-
-<img src="https://files.catbox.moe/g9kvni.jpeg" width="300"/>
+<img src="https://files.catbox.moe/3upmhd.webp" width="600"/>
 
 </div>
 
